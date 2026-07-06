@@ -86,7 +86,7 @@ Aspiring Data Analyst
 ### Connect with Me
 
 - GitHub: https://github.com/niteshchaudhari1731
-- LinkedIn: *(Add your LinkedIn profile link here)*
+- LinkedIn: https://www.linkedin.com/in/nitesh-kumar-chaudhari-67aa12342?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ---
 
